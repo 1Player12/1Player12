@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @1Player12
+- 👀 I’m interested in FiveM Mapping 
+- 🌱 I’m currently learning how to make a MLO
+- 📫 How to reach me !Player#2825 thats my discord :P
